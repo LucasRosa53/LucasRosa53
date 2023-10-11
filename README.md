@@ -1,4 +1,4 @@
-### Olá! Eu sou o Lucas Rosa 😃
+### Olá! Eu sou o Lucas de Moraes Rosa 😃
 
 ### Email: moraes.rosa223@gmail.com
 
